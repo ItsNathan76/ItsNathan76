@@ -1,6 +1,6 @@
 # Welcome to my page!
 
-Hello, i'm Nathan and i'am student on Brazil with 16 yrs. Please, accomodate yourself here and we can discuss further.
+Hello, i'm Nathan and i'am student from Brazil with 16 yrs. Please, accomodate yourself here and we can discuss further.
 
 ## Who is Nathan?
 
